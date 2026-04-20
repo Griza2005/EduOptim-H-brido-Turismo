@@ -1,1 +1,0 @@
-# EduOptim-H-brido-Turismo
